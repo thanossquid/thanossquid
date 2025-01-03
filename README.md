@@ -1,4 +1,4 @@
-## Welcome to [Thanos Squid](https://thanossquid.com/)!
+## Welcome to [Thanos Squid Online Game Platform](https://thanossquid.com/)!
 
 At **Thanos Squid Online Game Platform**, we offer an extensive selection of thousands of free online games tailored for every type of gamer. Whether you enjoy action, adventure, puzzles, sports, or strategy games, **Thanos Squid** has something to satisfy your gaming cravings. Experience the excitement of gaming without the hassle of downloads or subscriptions—just click and play!
 
